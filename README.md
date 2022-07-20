@@ -1,2 +1,1 @@
-
-Multinationale à vocation multiples
+Everything,  everywhere 
